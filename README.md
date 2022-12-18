@@ -10,4 +10,5 @@ Anggota Tim Capstone Project CA-22 :
 3. Lina Mauliyana
 
 link pitching video : https://youtu.be/ok9tqoYhkcg
+
 link video demsonstrasi : https://youtu.be/8Ai-cRntnYg
